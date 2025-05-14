@@ -1,1 +1,1 @@
-my favorite animal is cat
+my favorite animal is dog
